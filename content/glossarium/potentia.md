@@ -12,9 +12,9 @@ A potência não é negação pura nem possibilidade lógica, mas ordenação in
 
 Distinção essencial:
 
-– Nos entes criados, a potência explica a possibilidade de mudança e a recepção limitada do ato.
+–Nos entes criados, a potência explica a possibilidade de mudança e a recepção limitada do ato.
 
-– Toda potência é especificada pela forma e atualizada pelo ato correspondente.
+–Toda potência é especificada pela forma e atualizada pelo ato correspondente.
 
 Exclusão:
 A *potentia* não se identifica com possibilidade abstrata nem com indeterminação absoluta.
